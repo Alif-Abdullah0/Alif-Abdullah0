@@ -1,2 +1,2 @@
 ### Hi there 👋
- am alif,da pro coder
+I am alif, da pro coder
